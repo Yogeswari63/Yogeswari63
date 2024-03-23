@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on all kinds of projects which is FUN
 - 📫 How to reach me - drop a message in here and I'll be available almost all the time
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I woke up around 3.30 today which is SUNDAY
+- ⚡ Fun fact: I woke up around 3.30AM today which is SUNDAY for no specific reason
 
 <!---
 Yogeswari63/Yogeswari63 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
