@@ -2,7 +2,7 @@
 - 👀 I’m interested in working on content related to SQL/Python
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on all kinds of projects which is FUN
-- 📫 How to reach me - drop a message in here I'll available almost all the time
+- 📫 How to reach me - drop a message in here and I'll be available almost all the time
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I woke up around 3.30 today which is SUNDAY
 
